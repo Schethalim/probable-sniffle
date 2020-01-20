@@ -1,0 +1,1 @@
+EKSTRAK img.rar dan bs css js.rar terlebih dahulu
